@@ -232,4 +232,4 @@ Light of the Stars is available as a complete free version for Windows, offering
 Ready to embark on a stellar journey? **Download Light of the Stars now and lead your heroes to victory!**
 
 ---
-**Last updated:** 2026-11-09 16:01:17 UTC
+**Last updated:** 2026-11-10 00:38:20 UTC
